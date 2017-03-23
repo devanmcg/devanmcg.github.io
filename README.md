@@ -1,1 +1,0 @@
-# devanmcg.github.io
